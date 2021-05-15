@@ -1,0 +1,5 @@
+-  I’m Eyad Taher
+-  I’m interested in fnf
+-  I’m garbage at fnf
+-  i sometimes play with gamekeyboard+
+-  contact me on discord 
